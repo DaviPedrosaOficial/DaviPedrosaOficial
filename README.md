@@ -8,6 +8,6 @@
  
    Será um prazer estar lhe ajudando
 - 🔤 Possuo um Ingles Intermediário
-- ⚡ Tenho como grande Hobbie o amor por Games, principalmente Rpgs e Fps, e tenho como sonho poder na minha carreira estar trabalhando na criação de novos jogos e franquias
+- ⚡ Hoje, através de meus estudos, busco uma oportunidade de estar entrando no mercado de trabalho de desenvolvimento web. Onde procuro trabalhar utilizando meus conhecimentos que venho aprimorando em C#
 
 
