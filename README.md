@@ -1,5 +1,5 @@
 ### Bem vindo ao meu Perfil! 👋
-- 😊 Me Chamo Davi Da Silva Pedrosa, tenho 24 anos, e sou de Belo Horizonte-MG
+- 😊 Me Chamo Davi Da Silva Pedrosa, tenho 26 anos, e sou de Belo Horizonte-MG
 
 - 🔭 Estou no momento trabalhando como auxiliar administrativo em uma lanchonete localizada no Colégio Militar de Belo Horizonte
 - 🌱 Me encontro cursando o curso de Ciências da Computação na Faculdade Una, na Aimores em Belo Horizonte, assim como um curso de Excel via EAD na Megabit Formação Profissional
